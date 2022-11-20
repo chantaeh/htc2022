@@ -1,4 +1,4 @@
-# Hack to Change 2022
+# Hack the Change 2022
 
 Have you ever wanted to learn something but convinced yourself that you have other priorities and then never got around to it? Well that is fairly common between many among us and “Compete to Learn” is here to change that!
 
